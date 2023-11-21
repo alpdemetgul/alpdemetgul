@@ -1,5 +1,5 @@
 
-![](https://github.com/alpdemetgul/alpdemetgul/blob/main/Ry6p.gif)
+              ![](https://github.com/alpdemetgul/alpdemetgul/blob/main/Ry6p.gif)
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/alpdemetgl) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/alp-demetgül-7a83a318a/) [![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=Twitter&logoColor=white)](https://twitter.com/alpdemetgul) 
 
